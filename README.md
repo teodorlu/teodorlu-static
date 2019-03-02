@@ -1,0 +1,1 @@
+# teodorlu-static
